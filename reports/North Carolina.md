@@ -19,3 +19,4 @@ Police destroy supplies, including food and water, at a medical station. Medics 
 *  https://twitter.com/AngelaMWilhelm/status/1268056986102444033
 *  https://twitter.com/AngelaMWilhelm/status/1267974081577717762
 *  https://twitter.com/daveth89/status/1267974555332685824
+*https://www.citizen-times.com/videos/news/local/2020/06/03/asheville-police-destroy-water-bottles-medic-area/3133824001/
