@@ -179,6 +179,15 @@ Two peaceful protestors are standing in an empty street.  Dozens of police offic
 * [https://twitter.com/liveinochi/status/1267504585926557696](https://twitter.com/liveinochi/status/1267504585926557696)
 * https://tikitoks.com/@jacksonmonroe/video/6833397689187716358
 
+### LAPD is doing drive-bys now | June 2nd
+
+A group of people gathered on a corner are told their presence there is an illegal assembly and then the police proceed to shoot less-lethals at them from their car.
+
+**Links**
+
+* https://mobile.twitter.com/EarvinD/status/1268087279458775040
+* https://www.tmz.com/2020/06/03/la-sheriffs-deputies-drive-by-rubber-bullets-protesters/
+
 
 ## Oakland
 
